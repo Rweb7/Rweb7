@@ -24,7 +24,7 @@
   
  ⚡ Fun fact: ...
 
-  -I study via my computer, so I'm currently travelling around Latin America!
+  -I study via my laptop, so I'm currently travelling around Latin America!
    Currently in Lima, Peru!
   
   -I speak English (natively) and Spanish (Intermediate)
