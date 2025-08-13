@@ -1,9 +1,5 @@
 👋 Hi, I’m Ryan!
 
-  I'm a 2nd year Computer Science student at Thompson Rivers University exploring the world of coding, and also our world at the same time!
-  I plan to be an aspiring professional and hone my skills before I graduate!
-  Feel free to share any tips or critizisms with me!
-
  👀 I’m interested in ...
 
   Learning new technologies, building small projects, and computers!
