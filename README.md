@@ -21,9 +21,7 @@
  ⚡ Fun fact: ...
 
   -I study via my laptop, so I'm currently travelling around Latin America!
-   Currently in Lima, Peru!
+   Currently in Mexico City!
   
   -I speak English (natively) and Spanish (Intermediate)
-
-  -I hope to graduate by 2026!
 
